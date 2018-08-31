@@ -1,1 +1,1 @@
-# Nintendo-3ds-ds-download-play-hax-
+# Nintendo-3ds-ds-download-play-hax- before the 3ds logo starts press select and start r button to luanch homebrew luancher boot up 3dsx for while booting homebrew on 3ds screens red green yellow blue to the homebrew explosit create a folder automaticly called download hax then on wait until your homebrew apps load do not turn of system while proggressing if do you would lose homebrew apps or damage your system this hax is just for testing.......this works on 3ds 2ds new 3ds new 3ds xl and new 2ds xl
